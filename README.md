@@ -1,1 +1,0 @@
-# techcoin.github.io
